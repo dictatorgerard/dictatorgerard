@@ -1,1 +1,1 @@
-wip
+(rentry)[https://rentry.co/dictatorgerard]
