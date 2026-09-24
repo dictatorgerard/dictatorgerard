@@ -1,1 +1,1 @@
-(rentry)[https://rentry.co/dictatorgerard]
+WIP AUUGGHGH
