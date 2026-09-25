@@ -3,7 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=dictatorgerard&color=0d0c0c&style=plastic&label=♡)
 
 <div align="center"> 
-  <a href="https://rentry.co/dictatorgerard" target="_blank">rentry</a> <a href="https://roryyumeslop.straw.page">yume strawpage</a>
+  <a href="https://rentry.co/dictatorgerard" target="_blank">rentry</a> | <a href="https://roryyumeslop.straw.page">yume strwpg</a>
   
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
